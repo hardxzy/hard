@@ -1,4 +1,4 @@
-<img src="https://a.radikal.host/2022/07/28/Discord-Banner-Rifle-Shot-Render-v1.31c06c3a43184a704.gif">
+<img src="https://user-images.githubusercontent.com/70382532/138322189-2db8df52-9dcb-40a0-88a8-c365466bd33d.gif">
 <p align="center">
 <img src="https://readme-typing-svg.herokuapp.com?color=8C65F7FF&center=true&size=22&lines=HARDzy;$tore;CHeating;Community;"/>
 </p>
